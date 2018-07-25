@@ -1,3 +1,3 @@
-# ぱすかるふぉーまっと
+# 縺ｱ縺吶°繧九�ｵ縺峨�ｼ縺ｾ縺｣縺ｨ
 
-[リポジトリ一覧](https://github.com/pafmt)
+[繝ｪ繝昴ず繝医Μ荳隕ｧ](https://github.com/pafmt)
